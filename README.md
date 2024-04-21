@@ -27,14 +27,16 @@ Co se týče spánku, tak jsou k dispozici 2 ložnice (2 a 4 lůžka) a pak velk
 
 ## Jídlo a pití
 
-Zajistíme vyčep, sudy s pivem (pravděpodobně Beskydský pivovárek a Svijany) a medovinu z Medového dvora. Na snídaně tousty a každý den by jsme chtěli uvařit jedno společné jídlo (Guláš, Zelňačka, Chilli con carne, ...) Máte-li další nápad, dejte vědět. Večer bude oheň, kde si bude možné něco opéct. 
+Zajistíme vyčep, sudy s pivem (pravděpodobně Beskydský pivovárek a Svijany) a medovinu z Medového dvora. Na snídaně tousty a každý den by jsme chtěli uvařit jedno společné jídlo (Guláš, Zelňačka, Chilli con carne, ...) Máte-li další nápad, dejte vědět. Večer bude oheň, kde si bude možné něco opéct. K dispozici je vybavená kuchyň, mikrovlnka, toustovač. 
 
 ## Kontaky
 
 Pokud by jste se nám potřebovali dovolat. Na místě je prý ale velmi slabý signál
 
 Honza 608 212 626
+
 Mates 605 499 882
+
 Kuba  734 678 024
 
 
